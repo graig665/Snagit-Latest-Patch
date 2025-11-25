@@ -1,0 +1,1 @@
+# Snagit-Latest-Patch
